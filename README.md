@@ -5,9 +5,14 @@ more soon
 [discord server](none)
 [Roblox lol😂](https://www.roblox.com/users/4843920094/profile)
 fun fact about me i have like 100 friends in irl no Joke
-###### age 15 look 8 male live in michigan 6/26/24
-
-
-
-made by @Poopooumgoodttv
-made for @maxxp100131
+###### age 15 look 8 male live in michigan 1/13/09
+.
+.
+.
+made by @Poopooumgoodttv®
+made for @maxxp100131™
+.
+.
+.
+.
+6/26/24
