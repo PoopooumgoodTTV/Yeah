@@ -1,4 +1,4 @@
-![Screenshot_20240626-212356_kindlephoto-32407901](https://github.com/PoopooumgoodTTV/Yeah/assets/173562061/1d90db88-50a5-43d4-87bd-1e563149ea31)
+![[Screenshot_20240626-212356_kindlephoto-32407901](https://guns.lol/phantomzero)](https://github.com/PoopooumgoodTTV/Yeah/assets/173562061/1d90db88-50a5-43d4-87bd-1e563149ea31)
 this is the start of maxxp100131s .yeah page
 discord: maxxp100131
 more soon 
